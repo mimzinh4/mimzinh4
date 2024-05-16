@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn
 - 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on team
-- 📫 How to reach me do not enter <3
+- 📫 How to reach me do: not enter <3
 - 😄 Pronouns: she\her
 - ⚡ Fun fact: i don't understand anything about technology
 
